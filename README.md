@@ -24,7 +24,7 @@ Don't ask questions you don't want answers to.
 
 If you're going to fail, at least fail at something interesting.
 
-A lot of people thing of suicide as a permanent solution to a temporary problem. I like to think of it as a permanent solution to every problem you will ever have.
+A lot of people think of suicide as a permanent solution to a temporary problem. I like to think of it as a permanent solution to every problem you will ever have.
 
 If I can't offend anyone, I can't be effective in the workplace.
 
@@ -129,8 +129,8 @@ is it celtic for 'ass hat'? did their mothers have a seer look into their baby's
 
 It's totally weird, except it's not weird, because it's ok.
 
-##Lynn
-**RE: working at as a waitress:**  
+##[Lynn](https://twitter.com/lynnhessel)
+**RE: working as a waitress:**  
 I am wasted potential incarnate!
 
 ##Laura
@@ -153,7 +153,7 @@ The things that come out of other people's apartments - the smell of a home-cook
 You can build a thousand bridges and suck one dick - you're a dick sucker, not a bridge builder.
 
 **RE: the decline of Chicago:**  
-[I'm staying in Chicago because of this city turns into some John Carpenter-esque nightmare, I want to be here to see it.](https://twitter.com/BlakeDinwiddie/status/355476172928335872)
+[I'm staying in Chicago because if this city turns into some John Carpenter-esque nightmare, I want to be here to see it.](https://twitter.com/BlakeDinwiddie/status/355476172928335872)
 
 ##[Gary](https://twitter.com/garykupczak)
 **RE: face eating:**  
