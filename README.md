@@ -123,10 +123,6 @@ I chose the impossible.
 ITS NOT ROCKET GYNAECOLOGY
 
 ##Heather
-**RE: people named "Mike":**  
-why does everyone named mike make everything so difficult?
-is it celtic for 'ass hat'? did their mothers have a seer look into their baby's future?
-
 It's totally weird, except it's not weird, because it's ok.
 
 ##[Lynn](https://twitter.com/lynnhessel)
