@@ -2,6 +2,8 @@
 A curated collection of stupid shit my friends and I have said on the internet.
 
 ##[Jan](https://twitter.com/janszpila)
+Are you a repli- *can* or a repli- *can't*?
+
 Bitches don't know 'bout my not knowin' 'bout bitches.
 
 TECHNOLOGY: providing you with new and interesting methods for fucking with your children!
@@ -54,11 +56,18 @@ They definitely make prettier things than all of the other things.
 Dear all my things: I hate you.
 
 **RE: NIN's "Just Like You Imagined":**  
-Ugh, I love that distorted synth.  Why do I love that sound?  Makes no sense.  
+Ugh, I love that distorted synth.  
+Why do I love that sound?  
+Makes no sense.  
 That should be making my teeth bleed, but it makes me fucking happy.
 
 **RE: LESS CSS:**  
-Oh fuck, you can scale things in LESS??  WHAAAAAA?  My mind is blown.  This is like nerd Christmas.  And Hannukah.  Like presents AND fucking Latkes.
+Oh fuck, you can scale things in LESS??  
+WHAAAAAA?  
+My mind is blown.  
+This is like nerd Christmas.  
+And Hannukah.  
+Like presents AND fucking Latkes.
 
 **RE: new found alcohol intolerance:**  
 My blood is made of poison.
@@ -67,7 +76,8 @@ My blood is made of poison.
 If anyone mentioned Coffeescript, it must've been offhandedly, as in "Coffeescript, ants, books about vampires: all of these things exist in the world.  Some people have feelings about them."
 
 **RE: overriding Javascript events:**  
-For some dumb reason, I only figured out preventDefault a couple months ago.It was like looking at my wrench for the first time and thinking, "AND HERE I THOUGHT THIS WAS JUST A STUPID LOOKING HAMMER!"
+For some dumb reason, I only figured out preventDefault a couple months ago.
+It was like looking at my wrench for the first time and thinking, "AND HERE I THOUGHT THIS WAS JUST A STUPID LOOKING HAMMER!"
 
 **RE: being project-jacked:**  
 I hope it's total shit.  I really, really hope it's just complete and utter shit and I am vindicated and can just be like, "MY CUP RUNNETH OVER WITH I FUCKING TOLD YOU SO!"
