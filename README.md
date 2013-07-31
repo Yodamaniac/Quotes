@@ -2,6 +2,8 @@
 A curated collection of stupid shit my friends and I have said on the internet.
 
 ##[Jan](https://twitter.com/janszpila)
+Don't bring a knife to a gun fight. Unless it's a bayonet. Then it's ok.
+
 Are you a repli- *can* or a repli- *can't*?
 
 Bitches don't know 'bout my not knowin' 'bout bitches.
