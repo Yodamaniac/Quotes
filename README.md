@@ -40,6 +40,9 @@ I will fist-fuck your face.
 
 The glass is half-full… OF NOTHING.
 
+**RE: Adventure Time:**
+It's equal parts hallucinogens, Iron Maiden, and the Legend of Zelda.
+
 **RE: baby momma actually liking good stuff now:**  
 I planted the seed. I plowed the fields. I plowed the *shit* out of those fields and now someone else is getting all the good stuff!
 
