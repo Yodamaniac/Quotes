@@ -2,6 +2,8 @@
 A curated collection of stupid shit my friends and I have said on the internet.
 
 ##[Jan](https://twitter.com/janszpila)
+I'm sorry... that I'm so much better than you.
+
 Don't bring a knife to a gun fight. Unless it's a bayonet. Then it's ok.
 
 Are you a repli- *can* or a repli- *can't*?
