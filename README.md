@@ -46,7 +46,7 @@ I will fist-fuck your face.
 
 The glass is half-full… OF NOTHING.
 
-**RE: lots of developers being drunks:**
+**RE: lots of developers being drunks:**  
 But they're functional, so maybe they're just... "alcohol enthusiasts".
 
 **RE: Adventure Time:**  
