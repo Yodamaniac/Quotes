@@ -46,6 +46,9 @@ I will fist-fuck your face.
 
 The glass is half-full… OF NOTHING.
 
+**RE: lots of developers being drunks:**
+But they're functional, so maybe they're just... "alcohol enthusiasts".
+
 **RE: Adventure Time:**  
 It's equal parts hallucinogens, Iron Maiden, and the Legend of Zelda.
 
@@ -55,7 +58,7 @@ I planted the seed. I plowed the fields. I plowed the *shit* out of those fields
 **RE: working with attractive people:**  
 It's like finding a unicorn and then not being able to shoot it.
 
-**RE: Pawel, "Have you tried…"**  
+**RE: "Have you tried…"**  
 Have you tried talking with a broken jaw?
 
 ##[Casey](https://twitter.com/Raedances)
