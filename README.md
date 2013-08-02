@@ -1,8 +1,12 @@
 # Quotes
-A curated collection of stupid shit my friends and I have said on the internet.
+A curated collection of stupid shit my friends and I have said, on the internet and elsewhere.
 
 ##[Jan](https://twitter.com/janszpila)
+[Wherever there is fun to be had, I will be there. Not having it. And preventing anyone else from having it.](https://twitter.com/janszpila/status/348557996646862849)
+
 [Friends don't let friends drink and code. Good thing I don't have any friends.](https://twitter.com/janszpila/status/356787862584299520)
+
+Drink early, drink often.
 
 I'm sorry... that I'm so much better than you.
 
@@ -13,8 +17,6 @@ Are you a repli- *can* or a repli- *can't*?
 Bitches don't know 'bout my not knowin' 'bout bitches.
 
 TECHNOLOGY: providing you with new and interesting methods for fucking with your children!
-
-Your pants can't save you from the rapes!
 
 Being drunk is about the most fun you can have while you're awake.
 
@@ -58,7 +60,7 @@ Have you tried talking with a broken jaw?
 **RE: social interaction:**  
 [You are in a maze of passages, all alike. You get a text about hanging out. You have no social skills and are likely to be eaten by a Grue.](https://twitter.com/Raedances/status/146779271644446720)
 
-**RE: apple industrial design:**   
+**RE: Apple industrial design:**   
 They definitely make prettier things than all of the other things.
 
 **RE: moving:**  
@@ -181,3 +183,6 @@ How dare you insinuate I may be those things that I definitely am.
 ##Andy
 **RE: God being a Scooby Doo villain:**  
 And I would've gotten away with it, too, if it wasn't for you godless heathens!
+
+##Emily
+You're such a laid back guy, but when it comes to violence… you get really excited.
