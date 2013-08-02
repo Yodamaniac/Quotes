@@ -6,6 +6,8 @@ A curated collection of stupid shit my friends and I have said, on the internet 
 
 [Friends don't let friends drink and code. Good thing I don't have any friends.](https://twitter.com/janszpila/status/356787862584299520)
 
+It's not that I think I'm all that good... I just think everyone else is _terrible_.
+
 Drink early, drink often.
 
 I'm sorry... that I'm so much better than you.
