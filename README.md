@@ -2,6 +2,8 @@
 A curated collection of stupid shit my friends and I have said on the internet.
 
 ##[Jan](https://twitter.com/janszpila)
+[Friends don't let friends drink and code. Good thing I don't have any friends.](https://twitter.com/janszpila/status/356787862584299520)
+
 I'm sorry... that I'm so much better than you.
 
 Don't bring a knife to a gun fight. Unless it's a bayonet. Then it's ok.
